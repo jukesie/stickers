@@ -9,7 +9,6 @@ My printer preference is Diginate - but your mileage may vary. Sticker Mule are 
 - Be the Poo Umbrella are 7cm x 7cm
 - Weeknotes are 6cm x 4cm
 
-O9qknIjw.png
 
 
 
