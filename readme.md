@@ -7,7 +7,7 @@ My printer preference is Diginate - but your mileage may vary. Sticker Mule are 
 - Minimal Viable Bureacracy are 7cm x 5cm 
 - Work In Public Service are 7cm x 4.5cm
 - Be the Poo Umbrella are 7cm x 7cm
-- Weeknotes are 6cm x 4cm
+- Weeknotes are 6cm x 6cm
 
 
 
